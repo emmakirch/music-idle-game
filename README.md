@@ -1,0 +1,3 @@
+This is an idle game....
+
+more details to come
